@@ -8,3 +8,4 @@
   <th scope="col"><a href='https://b120s.github.io/aviator'>Download</th>
  </tr><table/>
 <h4 align=center>Available for Windows, iOS, and Android
+>activation code or id 
